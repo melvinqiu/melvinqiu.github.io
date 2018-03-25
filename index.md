@@ -1,2 +1,2 @@
 ### **_Tigers_**
-![Click Here to See a Video on Tigers!](https://www.youtube.com/watch?v=EEtVsx5xVos)
+[Click Here to See a Video on Tigers!](https://www.youtube.com/watch?v=EEtVsx5xVos)
